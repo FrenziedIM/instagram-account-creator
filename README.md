@@ -1,3 +1,5 @@
+➡️ Re-releasing GramCreator in October. For pre-purchase at a discount, please contact @frenziedbhw on Telegram.
+
 # instagram-account-creator
 Instagram Account Creator / Generator [Mass Creation]
 
